@@ -2,7 +2,7 @@
 - 👀 I’m interested in game dev, cybersecurity
 - 🌱 I’m currently learning Python, C++, unity, cybersecurity^_^
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me tg: @VaLva101
+- 📫 How to reach me tg: @z1t3rr
 - 😄 Pronouns: I am Steve
 - ⚡ Fun fact: I love BMW and Mercedes equally
 - And for the end...
